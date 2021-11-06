@@ -1,1 +1,0 @@
-# Whatsapp-Auto-Wisher
